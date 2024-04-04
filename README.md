@@ -1,1 +1,1 @@
-# SC1015_Exercise_8
+![Wolf, Goat and Cabbage Problem](https://www.glinskns.ie/wp-content/uploads/2016/10/wolf2.jpg)
